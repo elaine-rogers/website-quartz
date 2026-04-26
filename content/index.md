@@ -1,6 +1,4 @@
 ---
-title: Welcome to Quartz
+title: Welcome to My Campaigns
 ---
-
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+This is a sample of some of my campaign notes that I've been taking over the years. 
