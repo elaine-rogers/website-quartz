@@ -1,0 +1,2 @@
+#NPC
+Son of [[Baron Vargas Vallakovich]] and [[Lydia Petrovna]]. He is a miserable person who has confined himself to the attic. He has been using an old magic book he found in the library to teach himself magic. He has been constructing a teleportation circle to leave Barovia without his parents. 

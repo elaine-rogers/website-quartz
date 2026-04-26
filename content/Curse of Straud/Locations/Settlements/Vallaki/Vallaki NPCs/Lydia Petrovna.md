@@ -1,0 +1,2 @@
+#NPC
+Wife of [[Baron Vargas Vallakovich]]. She fully believes what her husband has says about the happiness and laughs at his every word. She has tea parties every single day. She is the younger sister to [[Lucian Petrovich]]. She is the descendent to Tasha Petrovna, a priest entombed in [[Castle Ravenloft]]. 
