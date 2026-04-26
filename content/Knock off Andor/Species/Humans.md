@@ -1,0 +1,4 @@
+#species
+Much is lost about the initial age of space exploration. Humanity spread all across the [[Silver River]] over the course of centuries. During this period of time humanity was ruled by a variety of factions that resembled the Roman Empire. Over the course of the thousands of years the empire would wane and fall apart, splintering into separate states and petty kingdoms. 
+
+The next dark age would have a stark contrast from those who had technology and knowledge and those who did not. Some colonies maintained space travel while others reverted back to the stone age. During millions of separation these would eventually differentiate into different species. 
